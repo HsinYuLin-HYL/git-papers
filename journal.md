@@ -9,6 +9,10 @@ Results
 
 Really, really cool results.
 
+Figures
+
+So beautiful, really. Just the best.
+
 References
 
 Smith, J (2020).
