@@ -1,6 +1,8 @@
 This is my super cool paper
 Written by me!
+
 And all of my friends, who are great.
+My affiliation: NTU
 
 Introduction
 
